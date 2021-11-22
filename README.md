@@ -1,0 +1,4 @@
+- Hi, I’m @Vicra2501
+- I’m interested in finding a job in IT, getting a certificate, 3D printing, design
+- I’m currently learning the odin project
+- I’m looking to collaborate on anything where I can improve my skilly
